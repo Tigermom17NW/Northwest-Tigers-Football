@@ -1,1 +1,0 @@
-# Northwest-Tigers-Football
